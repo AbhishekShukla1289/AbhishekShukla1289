@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **shukla1996abhishek@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1zVA8DBA-vTbJPf1kuxqKbGTFvjBVKVez/view?usp=sharing](https://drive.google.com/file/d/1zVA8DBA-vTbJPf1kuxqKbGTFvjBVKVez/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1zVA8DBA-vTbJPf1kuxqKbGTFvjBVKVez/view?usp=sharing](https://indigo-linnell-10.tiiny.site)
 
 - ⚡ Fun fact **I am a great cook**
 
